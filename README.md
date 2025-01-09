@@ -27,5 +27,7 @@
 
 ⚠️[Tải Về LG V30 Recovery UnBrick Zips​](https://xdaforums.com/attachments/unbrick_backup-zip.4741534/)
 
+⚠️ [Tải Về H932_Dump.zip ](https://ava6.androidfilehost.com/dl/886VZQfTld6dR-M92eCKiw/1736544660/1395089523397908552/H932_Dump.zip)
+
 
     Vũ Minh Ngọc © 2025
