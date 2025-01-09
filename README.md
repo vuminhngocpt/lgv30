@@ -23,7 +23,9 @@
 
 💽[Tải Về [ROM] [Android 13.0] [JOAN] crDroid v9.5 [UNOFFICIAL] [10-05] ](https://sourceforge.net/projects/kherio/files/)
 
+#### LG V30 Recovery UnBrick Zips​
 
+⚠️[Tải Về LG V30 Recovery UnBrick Zips​](https://xdaforums.com/attachments/unbrick_backup-zip.4741534/)
 
 
     Vũ Minh Ngọc © 2025
