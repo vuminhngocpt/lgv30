@@ -8,6 +8,10 @@
 
 ✅[Bấm Vào Đây Để Về Rom Gốc](https://vnrom.net/2022/07/rom-stock-kdz-cho-lg-v30-us998/)
 
+#### UlockBoot
+
+👉🏻[Hướng Dẫn Và Ulock Boot ](https://xdaforums.com/t/lg-v30-v30-v30s-bootloader-unlock-root-method-with-clear-instructions.3790500/)
+
 
 #### Tải Về 
 
