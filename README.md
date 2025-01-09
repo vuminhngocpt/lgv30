@@ -1,6 +1,6 @@
-#### Dành Cho LG V30
+#### Dành Cho LG 
 
-  -chưa test nên ae cẩn trọng khi up rom nguồn mình sưu tầm thôi
+��chưa test nên ae cẩn trọng khi up rom nguồn mình sưu tầm thôi
 
 #### Công Cụ Về Rom Gốc
 
