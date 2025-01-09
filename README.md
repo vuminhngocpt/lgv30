@@ -29,5 +29,7 @@
 
 ⚠️ [Tải Về H932_Dump.zip ](https://ava6.androidfilehost.com/dl/886VZQfTld6dR-M92eCKiw/1736544660/1395089523397908552/H932_Dump.zip)
 
+💽[?? Oreo and Pie capable 3.2.3-7 TWRP](https://androidfilehost.com/?fid=11410963190603869752)
+
 
     Vũ Minh Ngọc © 2025
