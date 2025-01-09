@@ -1,4 +1,4 @@
-#### Dành Cho LG 
+#### Dành Cho LG V30
 
 ��chưa test nên ae cẩn trọng khi up rom nguồn mình sưu tầm thôi
 
