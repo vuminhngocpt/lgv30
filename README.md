@@ -37,5 +37,9 @@
 
 👉🏻[?XDA Room TWRP ?](https://xdaforums.com/t/twrp-joan-v30-v30-v30s-unofficial-3-2-3-7-oreo-final.3852402/)
 
+#### Youtube | Hướng Dẫn | Link Liên Quan
+  - Là nơi tôi tổng hợp được các link hoặc bài viết gốc có thể bạn cần nó
+
+📺[Youtube © Phan Hong Phuc](https://m.youtube.com/watch?v=8Hq2C5YzHqc)
 
     Vũ Minh Ngọc © 2025
