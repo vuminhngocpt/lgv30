@@ -2,6 +2,10 @@
 
 ��chưa test nên ae cẩn trọng khi up rom nguồn mình sưu tầm thôi
 
+#### Root Rom Gốc 
+
+👉🏻[Hướng Dẫn Root](https://www.lgvinh.com/2019/08/Huong-dan-root-twrp-LG-V30.html?m=1)
+
 #### Công Cụ Về Rom Gốc
 
   - Công cụ về rom gốc và hướng dẫn cơ bản để các bạn về rom gốc khi máy bị lỗi
