@@ -31,5 +31,7 @@
 
 💽[?? Oreo and Pie capable 3.2.3-7 TWRP](https://androidfilehost.com/?fid=11410963190603869752)
 
+👉🏻[?XDA Room TWRP ?](https://xdaforums.com/t/twrp-joan-v30-v30-v30s-unofficial-3-2-3-7-oreo-final.3852402/)
+
 
     Vũ Minh Ngọc © 2025
